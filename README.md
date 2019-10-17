@@ -1,2 +1,2 @@
 # Stellar-Shrub
-Dilapidated Arachnid
+Frantic and ecstatic Arachnid antics in dilapidated attics.
